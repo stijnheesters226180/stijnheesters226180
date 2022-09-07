@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Stijn
+- 👀 I’m interested in yes
+- 🌱 I’m currently learning AI
+- 💞️ I’m looking to collaborate on topics about AI
+- 📫 How to reach me SK4#9757
